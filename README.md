@@ -1,0 +1,1 @@
+# inquisito-telegrambot-privacypolicy
